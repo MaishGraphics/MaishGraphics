@@ -8,7 +8,7 @@ Exploring sustainable design practices for eco-friendly branding
 - 💞️ I’m looking to collaborate on ...Crafting modern and user-friendly website designs and UI kits
 Exploring animation and motion design for interactive experiences
 Developing brand identities from concept to execution
-- 📫 How to reach me is...mainajames9939@gmail.com
+- 📫 How to reach me ...mainajames9939@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
